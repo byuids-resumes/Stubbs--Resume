@@ -37,7 +37,7 @@ __What's In a Name__: Compared specific names and their usuage over time. Looked
 
 `2018-2019`
 
-__Back of House Cook - Chickfila __, Frisco, TX
+__Back of House Cook: Chickfila __, Frisco, TX
 
 
 `2019-2020`
